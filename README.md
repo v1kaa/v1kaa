@@ -1,4 +1,4 @@
-## Hi there 👋, my name is VIki
+## Hi there 👋, my name is Viki
 #### a passionate IT student at Collegium Da Vinci.
 #### Currently, I am actively seeking internship or trainee opportunities to apply my skills and gain hands-on experience
 
