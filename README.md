@@ -12,11 +12,11 @@
 
 ### ✍️
 
-🌟 We are what we repeatedly do. Excellence, then, is not an act, but a habit – Aristotle 🌟
+:sparkles: We are what we repeatedly do. Excellence, then, is not an act, but a habit – Aristotle :sparkles:
 
 
 
-:sparkles:  Talk is cheap. Show me the code :sparkles:
+   :sparkles:  Talk is cheap. Show me the code :sparkles:
 
 
 
